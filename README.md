@@ -13,3 +13,8 @@ This is a community with the purpose of share anything interesting about *El Má
 ### Documentaries
 
 * [Charly Garcia - Historias Verdaderas](https://www.youtube.com/watch?v=UFCWLfl2hiQ) [50:32]
+
+### Interpretation
+In this section we can share our *interpretation* of the songs of Charly.
+#### [Cuchillos] (https://www.youtube.com/watch?v=UvIIUtDgIk8)
+* I think that this is the view of Charly about the relationship with his fans,always faithfuls despite his addictions,problems.
